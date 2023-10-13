@@ -1,0 +1,2 @@
+# Analise-contexto-loja
+ 
